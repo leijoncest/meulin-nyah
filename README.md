@@ -11,6 +11,7 @@
   <br>I also selfship with my fictionkin 'type Emberlynn! Selfcest win!!  
   <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/embergraphicc.png" width="200">
 <br>I am interested in: Helluva Boss / Hazbin Hotel | Shipping | MLP | Homestuck | FNaF | UT/DR | Various Anime <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meubook.png" width="110"> 
+ <br><img src="https://arseniccatsnip.neocities.org/assets/decor/heart%20divider.png" width="300">
   <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/tumblr_7fb4a18b7d89133fa54655a5c76bdb43_8f31089f_250.gif" height="15">  ${\textsf{\color{#FF189C}I SHIP PURROBLEMATIC SHIPS GET OVFUR IT!!! }}$ <img src="https://arseniccatsnip.neocities.org/assets/decor/heartaspect.gif">
 </p>  
 
