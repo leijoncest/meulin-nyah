@@ -6,7 +6,7 @@
 <p align="center"> 
   <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/tumblr_e8333f9cd9966cec1324895ca0704009_96b46fe0_250.gif" height="15"> ${\textsf{\color{#FF189C}&lt;&lt; HAII EVFURRYNYAN! }}$ <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/catgender%20star.png" height="16"> ${\textsf{\color{#FF189C}‧˚₊⊹ }}$
   <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meuomg.png" width="90">
-<br>9 Solar Sweeps {in my 20s in years} | ♌︎ | nyanbinary |  nya/it/they/mew/lolita | bisexual lesbian/gay | Neurodivergent <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meuspell.png" width="100"> 
+<br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meuspell.png" width="100"> 9 Solar Sweeps {in my 20s in years} | ♌︎ | nyanbinary |  nya/it/they/mew/lolita | bisexual lesbian/gay | Neurodivergent 
   <br>I also selfship with my fictionkin 'type Emberlynn! Selfcest win!!  
   <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/embergraphicc.png" width="200">
 <br>I am interested in: Helluva Boss / Hazbin Hotel | Shipping | MLP | Homestuck | FNaF | UT/DR | Various Anime <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meubook.png" width="110"> 
