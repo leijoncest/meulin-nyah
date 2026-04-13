@@ -2,7 +2,8 @@
  <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meulinleijongraphic.png" width="200"> <img src="https://arseniccatsnip.neocities.org/assets/decor/nepgraphic.png" width="200"><br>
 <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meulintextimage.png"></p>
 
-<p align="center"><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meulinbutton.gif" height="20"> <img src="https://arseniccatsnip.neocities.org/assets/decor/leijonpixel.png" width="20"> ${{\color{#416600}\Huge{\texttt{ABOUT ME}}}}$ <img src="https://arseniccatsnip.neocities.org/assets/decor/leijonpixel.png" width="20"> <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/nepetabutton.gif" height="20"></p>
+<p align="center"><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meulinbutton.gif" height="20"> <img src="https://arseniccatsnip.neocities.org/assets/decor/leijonpixel.png" width="20"> ${{\color{#416600}\Huge{\texttt{ABOUT ME}}}}$ <img src="https://arseniccatsnip.neocities.org/assets/decor/leijonpixel.png" width="20"> <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/nepetabutton.gif" height="20">
+<br><img src="https://arseniccatsnip.neocities.org/assets/decor/heart%20divider.png" width="300"></p>
 <p align="center"> 
   <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/tumblr_e8333f9cd9966cec1324895ca0704009_96b46fe0_250.gif" height="15"> ${\textsf{\color{#FF189C}&lt;&lt; HAII EVFURRYNYAN! }}$ <img src="https://arseniccatsnip.neocities.org/assets/meustuffs/catgender%20star.png" height="16"> ${\textsf{\color{#FF189C}‧˚₊⊹ }}$
   <br><img src="https://arseniccatsnip.neocities.org/assets/meustuffs/meuomg.png" width="90">
